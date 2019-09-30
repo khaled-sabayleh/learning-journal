@@ -1,4 +1,4 @@
-What is a text editor?
+# What is a text editor?
 its apeace of software to write and manage text .
 What features should you look for in a text editor? I would say some
 of the most important features are: 1.) code completion; 2.) syntax
