@@ -5,7 +5,7 @@ Over 30 years ago, Carol Dweck and her colleagues became interested in studentsâ
 see amazing results.
 development the second year
 
-![](https://teacherbooker.com/wp-content/uploads/2017/10/Blog-pic-growth-mindset.jpg)
+![image](https://teacherbooker.com/wp-content/uploads/2017/10/Blog-pic-growth-mindset.jpg)
 
 
 ****************************** end *******************************
