@@ -9,8 +9,10 @@ see amazing results.
 development the second year<br>
 
 
- I alawys remind my self :
 
+
+
+ I always remind my self 
 1. Remember that it takes time to learn
 
 2. Never stop learning. Set a new goal for every one you accomplished.
