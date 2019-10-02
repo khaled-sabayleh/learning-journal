@@ -6,7 +6,7 @@ Over 30 years ago, Carol Dweck and her colleagues became interested in studentsâ
 
 <h2> teaching look like in the real world
 see amazing results.
-development the second year
+development the second year<br>
 
 > I alawys remind my self :
 
