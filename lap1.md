@@ -8,7 +8,7 @@ Over 30 years ago, Carol Dweck and her colleagues became interested in studentsâ
 see amazing results.
 development the second year
 
-I alawys remind my self :
+> I alawys remind my self :
 
 - Remember that it takes time to learn
 
