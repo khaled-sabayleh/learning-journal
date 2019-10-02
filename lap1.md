@@ -9,7 +9,7 @@ see amazing results.
 development the second year<br>
 
 
-> I alawys remind my self :
+ I alawys remind my self :
 
 1. Remember that it takes time to learn
 
