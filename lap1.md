@@ -8,13 +8,14 @@ Over 30 years ago, Carol Dweck and her colleagues became interested in studentsâ
 see amazing results.
 development the second year<br>
 
+
 > I alawys remind my self :
 
-- Remember that it takes time to learn
+1. Remember that it takes time to learn
 
-- Never stop learning. Set a new goal for every one you accomplished.
+2. Never stop learning. Set a new goal for every one you accomplished.
 
-- Learn from the mistakes of others.
+3. Learn from the mistakes of others.
 
 
 ****************************** end *******************************
